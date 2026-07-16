@@ -2,7 +2,8 @@ Archaic Thought and Psychosis: The Collapse of Symbolic Function
 
 Dr. Vincenzo Bumbalo, MD
 
-Analytical Psychotherapist – Jungian-Oriented Psychoanalyst Clinical Phenomenologist
+Analytical Psychotherapist – Jungian-Oriented Psychoanalyst - Clinical Phenomenologist
+
 Clifton Park, New York State, USA
 
 About the Author
