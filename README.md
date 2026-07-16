@@ -185,6 +185,7 @@ Perhaps the broadest implication of the argument, however, is not clinical but p
 that it can be destroyed — points to the constructed, achieved character of the human world of meaning itself. The human being does not inhabit a pregiven world of stable meanings and secure representations; she inhabits a world that is constituted through the ongoing labor of symbolization, a labor that requires not only individual cognitive development but social, linguistic, and relational conditions for its sustained reproduction. Psychosis, on this account, is not merely a clinical problem — a set of symptoms requiring management — but a philosophical problem: it is the phenomenon that most starkly reveals the contingency and vulnerability of the symbolic order that constitutes the human world. To understand psychosis is, ultimately, to understand something fundamental about the human condition — about the precariousness of the symbolic achievement upon which all of our ordinary certainties, all of our shared meanings, and all of our intersubjective connections depend.
 
 References
+
 Bion, W. R. (1959). Attacks on linking. International Journal of Psychoanalysis, 40, 308–315. Bion, W. R. (1962). Learning from experience. Heinemann.
 Bion, W. R. (1967). Second thoughts. Heinemann.
 
